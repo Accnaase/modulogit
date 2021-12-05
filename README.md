@@ -1,3 +1,9 @@
-Primeira vez usando o GIT
+Vou apagar tudo essa merda fdc
 
-Alterando dnv pq eu so burro
+
+
+
+Umas linhas atoas aqui
+
+
+e uma linha bem loca aqui
